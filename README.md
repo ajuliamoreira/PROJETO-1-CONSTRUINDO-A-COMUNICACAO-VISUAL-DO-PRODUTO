@@ -7,7 +7,7 @@ O que as cores utilizadas na logotipo da TechPrime transmitem para o público?
 ➜ Azul: transmite confiança, inteligência, segurança e estabilidade.
 Uma cor muito usada por empresas de tecnologia para repassar credibilidade.
 
-➜ Verde: Sugere crescimento, renovação e tecnologia limpa.
+➜ Verde: Sugere crescimento, transmite renovação e uma tecnologia limpa.
 
 FONTES: 
 
