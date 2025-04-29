@@ -1,4 +1,4 @@
-# PROJETO-1-CONSTRUINDO-A-COMUNICA-O-VISUAL-DO-PRODUTO
+# PROJETO-1-CONSTRUINDO-A-COMUNICACAO-VISUAL-DO-PRODUTO
 
 1. Cores: o que transmitem para o público?
 Azul: transmite confiança, inteligência, segurança e estabilidade. Uma cor muito usada por empresas de tecnologia para repassar credibilidade.
