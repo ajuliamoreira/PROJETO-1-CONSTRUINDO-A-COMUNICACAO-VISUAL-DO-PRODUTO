@@ -9,6 +9,8 @@ Uma cor muito usada por empresas de tecnologia para repassar credibilidade.
 
 ➜ Verde (astral) : Sugere crescimento, transmite renovação e uma tecnologia limpa.
 
+➜Branco (#f5f5f5) : Essa cor representa destaque e clareza para a logotipo
+
 --------------------------------------------------------------------------------------------
 FONTES: 
 
